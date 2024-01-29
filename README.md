@@ -7,4 +7,4 @@
 - 💬 Ask me about my favorites programming languages
 - 📫 How to reach me: rashmontero
 - 😄 Pronouns: She
-- ⚡ Fun fact: I love pets but i never had one 
+- ⚡ Fun fact: I love pets but i never had one :'3
